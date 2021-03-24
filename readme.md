@@ -21,3 +21,5 @@
 * Ademas de ellos, mi familia tambien esta integrada por una gatita hermosa llamada Chloe que en unos dias ya cumple 2 años y a ella la adoptamos con mi novia cuando era chiquita.
 
 * Hace una semana, agrandamos la familia ya que adoptamos a una gatita que le pusimos de nombre nala. Es super linda y juguetona.
+
+Bueno creo que eso es todo de mi, cualquier cosa me escriben. ¡Nos vemos!

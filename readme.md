@@ -19,7 +19,8 @@
 
 * Cuando hago una presentación sobre mi siento la necesidad de hablar sobre mi familia ya que son gran parte de mi vida. Actualmente vivo con mi mamá (Cecilia), mi papá(Pablo) y mi hermano menor (Eric,que tiene 13 años).Tengo otro hermano(Ian, que tiene 21 años) que ya hace un año que se fue a vivir solo con su novia(Aldana).Tambien tengo novia (Milagros), ya llevamos en pareja 3 años y espero que sean muchos mas.
 
-![Familia](C:\Users\Laure\Desktop\Facu\Paradigmas de programacion\familia.jpg)
+! [Familia][https://photos.app.goo.gl/gwR64pSkEUa2QZv98 "Familia"]
+
 * Ademas de ellos, mi familia tambien esta integrada por una gatita hermosa llamada Chloe que en unos dias ya cumple 2 años y a ella la adoptamos con mi novia cuando era chiquita.
 
 * Hace una semana, agrandamos la familia ya que adoptamos a una gatita que le pusimos de nombre nala. Es super linda y juguetona.

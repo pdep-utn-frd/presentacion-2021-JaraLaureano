@@ -19,7 +19,7 @@
 
 * Cuando hago una presentación sobre mi siento la necesidad de hablar sobre mi familia ya que son gran parte de mi vida. Actualmente vivo con mi mamá (Cecilia), mi papá(Pablo) y mi hermano menor (Eric,que tiene 13 años).Tengo otro hermano(Ian, que tiene 21 años) que ya hace un año que se fue a vivir solo con su novia(Aldana).Tambien tengo novia (Milagros), ya llevamos en pareja 3 años y espero que sean muchos mas.
 
-<img src="https://photos.google.com/share/AF1QipO3nsZABgcE0QO0nmdSkyhim_lV3wg5G0QisbLERFMAhI9G7jECWEhAlFGABFeQSw/photo/AF1QipPbpy-RCUorMFDmDcxYjwsFO9R8nmJYdbIWNsIC?key=ejZKNnBxeWFxQTg0aWhqMFcxY2oyem52Y0t5TFF3" width="400" height="400">
+<img src="https://lh3.googleusercontent.com/pw/ACtC-3dOUQ2AvTPuEOabaKVk11HhfWDPvXK2NsSuhDaK9VxvJAK4cZgiSmqhutwlOutTl0tx985MwaA3ZSPpfTa6GOgbEB5KkpsupPIRdbV86S6B831b8Gh2oOTJvUs-8pYPnKA-kn2MJhvI3H6Yc3swgXdb=w1221-h915-no?authuser=0" width="400" height="400">
 
 * Ademas de ellos, mi familia tambien esta integrada por una gatita hermosa llamada Chloe que en unos dias ya cumple 2 años y a ella la adoptamos con mi novia cuando era chiquita.
 
